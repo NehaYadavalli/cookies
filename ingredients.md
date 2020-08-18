@@ -1,0 +1,1 @@
+the ingredients are  1 cup flour,  1/2 cup sugar,  2 eggs, 12 oz of chocolate, 1 tsp baking powder, 1/2 cup milk, dash of vanilla extract, and  softened butter(whole stick)
